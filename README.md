@@ -13,6 +13,8 @@
 - 📫 How to reach me: Phone; 708-682-1484
                       Email; Everythingdew@gmail.com
 
+  Check out My Website for other info [
+](https://dewallart.weebly.com/illustrations.html)
 <!---
 KyjuanWashington-DEW/KyjuanWashington-DEW is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
